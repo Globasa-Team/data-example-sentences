@@ -1,0 +1,19 @@
+-
+  text: 'This is an override passage.'
+  terms: [devtest_1, devtest_2, devtest]
+  cite:
+    text:
+      glb: 'glb Examples Override Passages'
+      eng: 'Examples Override Passages'
+      spa: 'spa Override'
+    link:
+      spa: 'http://globasa.net/spa'
+-
+  text: 'Second override'
+  terms: [devtest]
+  cite:
+    text:
+      eng: 'Examples Override Passages'
+      spa: 'Something Something Something'
+    link:
+      glb: 'http://globasa.net/glb'

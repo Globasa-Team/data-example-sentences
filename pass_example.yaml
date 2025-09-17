@@ -1,0 +1,19 @@
+-
+  text: 'This is a currated passage.'
+  terms: [devtest_1, devtest_2, devtest]
+  cite:
+    text:
+      glb: 'glb Examples Currated Passages'
+      eng: 'Examples Currated Passages'
+      spa: 'spa Currated'
+    link:
+      glb: 'http://globasa.net/'
+-
+  text: 'Second currated'
+  terms: [devtest]
+  cite:
+    text:
+      eng: 'Examples Currated Passages'
+      spa: 'Something Something Something'
+    link:
+      glb: 'http://globasa.net/'
