@@ -1,6 +1,5 @@
 -
-  text: 'This is a currated passage.'
-  terms: [devtest_1, devtest_2, devtest]
+  text: 'Salom, doste! Mi hare myaw. Yu hare bwaw. Nini hare piu. Papa hare mahi. Myaw yam jubin. Mahi yam salada. Mi yam risi. Piu yam pingo. Yu yam banana. Nini yam roti. Papa yam patato. Bwaw yam kitabu. Xanti, doste!'
   cite:
     text:
       glb: 'glb Examples Currated Passages'
@@ -9,8 +8,7 @@
     link:
       glb: 'http://globasa.net/'
 -
-  text: 'Second currated'
-  terms: [devtest]
+  text: 'Xanti, sodar! Supa, fe lutuf. Xukra. Weda, sodar!'
   cite:
     text:
       eng: 'Examples Currated Passages'

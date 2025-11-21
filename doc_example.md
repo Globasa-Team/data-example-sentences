@@ -10,6 +10,6 @@ cite:
 
 Mi lubi devtest. Mi lubi nini.
 
-Oh no devtest. How many times will this be added? Multiple, I guess.
+Nini oko filme. Kam nini oko filme?
 
-devtest devtest devtest.
+Myaw no glu cay. Kam yu suki na oko filme? Mi lubi yu. Yu lubi mi. Kam patre suki na yam salada? Si, patre suki na yam salada. No, patre no suki na yam salada.
