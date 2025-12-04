@@ -16,13 +16,15 @@ Mi le fale ban bur to. Mi le fale bur banto.
 
 Hinto sen keto?
 
-Hin xey sen lil/day.
+Hin xey sen lil.
+
+Hin xey sen day.
 
 Ete sen bon insan.
 
 Multi insan no jixi hinto.
 
-Fe duli mara, bur xey okur tas bon insan.
+Fe dumara, bur xey okur tas bon insan.
 
 Jismu de manixu no sen denpul kom jismu de femixu.
 
@@ -32,15 +34,21 @@ Hin xey hare dua mon.
 
 Jismu de insan hare multi mon.
 
-Hay dua/multi tipo fe nyame.
+Hay multi tipo fe nyame.
 
-Te okocu denpul/sim kom sama tipo (fe mahi). Mas te no sen. Te sen alo tipo.
+Te okocu denpul kom sama tipo fe mahi. Mas te no sen. Te sen alo tipo.
 
-Hay (sol) un tipo fe mahi in hin hosu.
+Te okocu sim kom sama tipo fe mahi.
 
-Hinto sen bon/bur.
+Hay sol un tipo fe mahi in hin hosu.
 
-Hinto sen day/lil basketo.
+Hinto sen bon.
+
+Hinto sen bur.
+
+Hinto sen day basketo.
+
+Hinto sen lil basketo.
 
 Mi le oko hin dua insan; hin moy insan.
 
