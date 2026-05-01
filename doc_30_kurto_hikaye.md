@@ -12,7 +12,7 @@ Espayk hare day brilapul oko ji belonarem koda.
 
 Te multi suki na toncudu balutajozi.
 
-Fe ban soba, Espayk jagecu ji xorjui ki moy tesu balutajozi le awcu.
+Un soba, Espayk jagecu ji xorjui ki moy tesu balutajozi le awcu.
 
 Te oko fe jowey, mas oto sen okoible nilloka.
 
@@ -24,7 +24,7 @@ Espayk karar na xerca balutajozi.
 
 Te pawbu pas drevogeo, te oko bax ganmoku ji in drevo.
 
-Te peti sesu plu doste na sahay.
+Te peti sesu dostetim na sahay.
 
 Moy piu, kargux ji hirxa toncu ton te in xerca.
 
@@ -36,11 +36,11 @@ Lutufpul lao borsuke le dupul hifazi oto.
 
 Borsuke oko yolyu de Espayk, ji te karar na sahay.
 
-Borsuke dishadya balutajozi ton Espayk ji tesu plu doste.
+Borsuke dishadya balutajozi tas Espayk ji tesu dostetim.
 
 Espayk sen daymo xukrapul.
 
-Te ji tesu plu doste pulgi sesu honguogar yon balutajozi.
+Te ji tesu doste pulgi sesu honguogar yon balutajozi.
 
 Ete sen jumbi cel bardimosem.
 
