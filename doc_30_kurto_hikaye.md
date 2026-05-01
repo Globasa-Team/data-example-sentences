@@ -49,3 +49,43 @@ Espayk xukra borsuke ji moy sesu doste.
 Te xoraham ki tonaksyon ji lutuf abil na hala he ban problema.
 
 Den bardimosem, Espayk ji tesu doste resta termopul ji hox, fe na tongo befuraha balutajozi.
+
+Un mara, gao in asman, hay bursolo lil megu namedo Flafi.
+
+Flafi sen maxmo lil kom alo megu ji te le moywatu levita solo.
+
+Un solapul din, Flafi levita supra ixgalupul xaher.
+
+Of super, te oko insan hu da ajela fe jowey.
+
+Ete kwasisen ixgalupul ji hox.
+
+Flafi xiwon ki te abil na sen mon de joxune banto.
+
+Durki Flafi levita, te oko grupo fe nini hu da yuxi in parke.
+
+Ete supraoko ji ixara hoy asman.
+
+Flafi levita maxmo ner.
+
+Nini sen joxudo kos na oko megu hu da hare figura fe kargux.
+
+Flafi xoraham ki ete ixara hoy te!
+
+Te le ganjoncu hox kos na pregi joxu tas nini.
+
+Har ganjon fe ilhamu, Flafi karar na levita supra maxpul loka.
+
+Te flota supra sahel, drevogeo, ji hata jabal.
+
+He moyloka hu cel da te idi, insan tabasum ji ixara hoy tesu plu solunpul figura.
+
+Flafi no haji ganjon bursoloya.
+
+Te aham ki tesu presen in asman pregi hoxya tas alo ete.
+
+Te le ewreka sesu cele.
+
+Xorfe den din, Flafi nilwatu sen realmo solo.
+
+Te hare total dunya cel na diskonegi sesu figura, ji te daysuki na tabasumgi insan.
