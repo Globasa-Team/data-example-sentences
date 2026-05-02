@@ -173,3 +173,45 @@ Beni diskonegi sesu neo jixi ton sesu dostetim in drevogeo.
 Tongo, ete xoru plu aventur, yon gida de sofi xorharedo of hikaye de Oliver.
 
 Denmaner, warisa de sofipul lao huhu durepul jiwa yon aventur de Beni ji de tesu dostetim.
+
+Ban mara, in xantipul deha, hay lil baytu hu da sen alopul kom moy alo baytu.
+
+Moy kamer in baytu hare sesu suli magikali siri.
+
+In kokikamer, kaxoke ji forke danse denwatu hu nilte oko.
+
+Oto toka ji cundotu cel na krea musika hu sol baytu abil na ore da.
+
+Lama boyletul fale plu melodi hu da kosa ki cayfenjan hox rota.
+
+Jaxali, hay familkamer hu in da kusen per sofa pimpan alocu fe kolor.
+
+Eger bante ganjoncu hazuni, kusen sencu blue.
+
+Eger te sen hox, oto brila yon luminpul jalo ji roso kolor.
+
+Hin kamer jixi ku kemaner na hoxgi he bante hu da inkadam.
+
+Banyokamer sen maxim magikali to of moy kamer.
+
+Ayna per divar abil na pala.
+
+To gibe sofipul nasiha ji to moywatu jixi na loga nasibune xey.
+
+To loga hikaye fe teli dexa ji to alim darsu tem lutuf ji yunki.
+
+Fe supracengu, hay somnokamer hu in da janela onexa alo sahni fe moyun din.
+
+Un din, to ible onexa solapul sahel, ji jaxali din, talujipul jabalkapi.
+
+To sen denpul kom na hare neo aventur moywatu hu yu oko hoy exya.
+
+In sakfukamer, lama yuxitul hifazido denloka no sol harkakal leta.
+
+Fe noce, oto sencu jiwane.
+
+Oto yuxi ji soho loga tas se hikaye tem watu feki oto le belubi nini, hu da nun sen baligu.
+
+Moy kamer in baytu pregi hoxya ji wao tas moyte hu da inkadam.
+
+Hin lil baytu in deha le nilwatu sen sol baytu; to sen magikapul ogar hu da intizar na diskonegi sesu siri tas he bante hu da haja oto.
