@@ -314,9 +314,9 @@ Mia hare idey.
 
 Te preporta kolor of ogar.
 
-Te hare roso, kijawi, orange, ji sefide pentu.
+Te hare roso, kijawi, orange, ji sefide kolorente.
 
-Te pentu un solo dahun sefide.
+Te kolor un solo dahun sefide.
 
 Jaxali din, Mia oko sefide dahun ji te tabasum.
 
@@ -336,7 +336,7 @@ Mia xwexi ki dumara, lil aksyon abil na fale day alogi.
 
 Dehatim xwexi ki ete moywatu abil na soho sahay se.
 
-Fe moy mosem, ete pentu un dahun de drevo.
+Fe moy mosem, ete kolor un dahun de drevo.
 
 Ete memori darsu de Mia, ji ete jaxne magikali drevo tongo.
 
@@ -628,7 +628,7 @@ Te lubi sesu ergo.
 
 Te vole ki moy detale sen perfeto.
 
-Tesu artedom sen pul fe nenfinido pentuxey.
+Tesu artedom sen pul fe nenfinido pentu.
 
 Te xoru multi projeto mas te nilwatu fini oto.
 
@@ -636,7 +636,7 @@ Te yolyu tem moyun lil malxey.
 
 Un din, Edi cudu day tyojan.
 
-Xohrapul arte-onexadom peti pentuxey of te.
+Xohrapul arte-onexadom peti pentu of te.
 
 Ete haja to xafe un safta.
 
@@ -648,7 +648,7 @@ Mas te jixi pia sesu problema.
 
 Te moywatu awyongu godomo multi watu fe detale.
 
-Edi xoru pentuxey.
+Edi xoru pentu.
 
 Te ergo dur nuru ji noce.
 
@@ -678,17 +678,17 @@ Edi invita sesu plu doste cel sesu artedom.
 
 Te peti ete na sahay te.
 
-Te gibe tas ete pentubroxa ji pentu.
+Te gibe tas ete pentubroxa ji kolorente.
 
 Tesu doste xoru na pentu ton te.
 
-Ete maxusgi sesu suli estilo tas pentuxey.
+Ete maxusgi sesu suli estilo tas pentu.
 
 Edi esto sesu perfetofilya.
 
 Te izin sesu doste na huru pentu.
 
-Pentuxey sencu mixtura fe doyan estilo.
+Pentu sencu mixtura fe doyan estilo.
 
 To okocu ativo ji jiwapul.
 
@@ -696,7 +696,7 @@ Edi xoroko meliya in nenperfetoxey.
 
 Te xoraham ki arte sen tem vyata, no tem perfetoya.
 
-Fe finili din, Edi ji tesu doste kompletogi pentuxey.
+Fe finili din, Edi ji tesu doste kompletogi pentu.
 
 Ete deliver to tas onexadom.
 
