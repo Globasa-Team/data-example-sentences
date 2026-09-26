@@ -122,7 +122,7 @@ To sen kostantemo brilapul.
 
 Te xukra Oliver ji te xoru sesu dao cel ogar, yon na folo estare.
 
-Folki te anda, drevogeo sencu minno fobine.
+Folki te anda, drevogeo sencu minmo fobine.
 
 Estare sen denpul kom doste, to lumin tesu dao.
 
