@@ -19,7 +19,7 @@ Maxpul, na eskri jandan sen maxmo lutufpul. Denwatu hu yu eskri fe dekorapul man
 
 Ji am memori, eger yu eskri in Englisa, ki multi te of yusu doxoyen xa no sen aselli Englisayen. Ible, etesu aham fe idey sen maxmo suprali kom etesu aham in Englisa. Fe folo, yu no abil na jadin ki na eskri tem katina tema mena ki yu abil na yongu katina lexi.
 
-Mimbay, dekorapul eskri no sol sangu idey. Pia, to abil na sangu otosu poshay. Denseba, ban insan denpul dueskri, cel na sangu fato ki ete hare nilto na loga. Fe kompara, na jandan eskri sengi yu durepulmo cipenkal. Eger yu loga nilto jandan, to xa sen mimbay tas moyte, fe inkludi tas yu.
+Mimbay, dekorapul eskri no sol sangu idey. Pia, to abil na sangu otosu awsen. Denseba, ban insan denpul dueskri, cel na sangu fato ki ete hare nilto na loga. Fe kompara, na jandan eskri sengi yu durepulmo cipenkal. Eger yu loga nilto jandan, to xa sen mimbay tas moyte, fe inkludi tas yu.
 
 Jandan eskri pia maxmo bon dudure. Insan hu da doxo yusu eskrixey fe xaya xa sen fe banmo sama halu kom insan of alo dexa hu da doxo to nundin. Kultura ji basa xa le alocu. Yu no sen burfahuri eger dento sen muhim tas yu, samamaner hu to no sen burfahuri, ki moksayyen kostrui kursi cel na sen dureabil.
 
