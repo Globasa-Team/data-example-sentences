@@ -284,7 +284,7 @@ In lil deha, hay magikali drevo.
 
 Hin drevo alocu fol mosem.
 
-Fe bijamosem, to hare roso flura.
+Fe bijamosem, to hare pinku flura.
 
 Fe termomosem, to hare kijawi dahun.
 
