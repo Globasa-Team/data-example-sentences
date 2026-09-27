@@ -1134,7 +1134,7 @@ Johan ganjon hazuni ji bursolo.
 
 Eskol sen katina, ji Johan hare nilte hu na pala ton da.
 
-Darsudoste de Johan no hare sama interesxey.
+Darsu-tonyen de Johan no hare sama interesxey.
 
 Midiyamwatu sen bursolo wal tesu netodoste.
 
