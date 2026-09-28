@@ -554,7 +554,7 @@ Xorfe den din, Sam nilwatu esto na dudanse.
 Te danse no tas alo ete, mas tas se.
 
 
-In day xantipul drevogeo, sofipul lao kacupa namedo Tim ji juni nensabar piu har namedo Bela ogar.
+In day xantipul drevogeo, sofipul lao kacupa namedo Tim ji juni nensabar piu namedo Bela ogar.
 
 Tim harkacu hanman mas te befuraha moyun momento, fe kompara ki Bela velosi fley of drevo cel drevo; te moywatu xerca neo banto.
 
