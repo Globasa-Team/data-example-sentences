@@ -22,8 +22,6 @@ Boboyen hu da el nilto jixi
 
 Ete nefra ete hu da sen virtwal 
 
-Am amusa yon mi
-
 El byen am trasidi
 
 He bante abil na fale to
@@ -45,7 +43,3 @@ Cel comen de fantasi
 Mi suki hinoto
 
 Jixinenible hoypospel
-
-Yusu fantasi kriban pom
-
-Am izin tas mi na satigi to
