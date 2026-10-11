@@ -5,6 +5,7 @@ cite:
     link:
         glb: 'https://sarencirenda.wordpress.com/2025/12/03/roya-de-kiwi/'
 ---
+
 Kiwi le vole na fley, denseba, te idi cel gufa de lao hufax cel na peti sahay.
 
 “Am tonporta mi cel asman, fe lutuf. Denmaner, mi xa dadal misu roya fe abil na fley”, kiwi peti tas hufax.
