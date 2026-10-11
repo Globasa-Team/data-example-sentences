@@ -7,7 +7,11 @@ cite:
 ---
 
 Jajaledin, mi fatmin watumaxina
+
 jaledin, mi yonidi unsungoyen
+
 nundin, mi kostrui kastilo in Budu
+
 jaxadin, mi idi cel parti de dragon
+
 jajaxadin, mi membrocu in uncutim fe magikayen
