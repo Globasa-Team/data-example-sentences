@@ -790,7 +790,7 @@ Konen haha, mas te karar na sahay.
 
 Ete xoru na dao tongo.
 
-Ete traspasa nongyodom.
+Ete ultrapasa nongyodom.
 
 Mumu haha tem roya de Letus.
 
